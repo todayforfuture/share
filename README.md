@@ -1,0 +1,2 @@
+# share
+study　effort　future
